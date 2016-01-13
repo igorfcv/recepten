@@ -1,1 +1,2 @@
-Per recept worden ingrediënten, foto en werkwijze vermeld.
+Per recept worden ingrediÃ«nten, foto en werkwijze vermeld.
+Chocolate
